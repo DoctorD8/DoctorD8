@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DoctorD8
 - 👀 I’m interested in ... Computer science,biology, and art
 - 🌱 I’m currently learning ... I am currently trying to get back into godot and I am trying to develop games on Roblox Studio.
-- 💞️ I’m looking to collaborate on ... nothing at the moment but ill change this if im looking to collaborate
+- 💞️ I’m looking to collaborate on ... Im not looking for anybody but if they want me id be down.
 - 📫 How to reach me ... you can reach out to me on discord which il put here soon.
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... my dream job is game developer
